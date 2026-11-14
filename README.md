@@ -1,1 +1,0 @@
-# Molybdenum-Mo-Exercise-Collaborative-programming
